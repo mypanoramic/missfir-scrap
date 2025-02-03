@@ -238,7 +238,7 @@ sunwardpark@missfitboxing.com
 
 ## Pretoria
 
-## [MissFit Van Ryneveld](https://missfitboxing.com/za/missfit-van-ryneveld/)
+### [MissFit Van Ryneveld](https://missfitboxing.com/za/missfit-van-ryneveld/)
 
 **066 270 2393**
 
