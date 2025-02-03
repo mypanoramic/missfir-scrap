@@ -14,7 +14,6 @@
 
 Our founder of MissFit Studios has many years of high-intensity fitness experience and knows exactly what keeps you moving, grooving and wanting more. With high intensity and well thought-out fitness programming that will offer you, weight loss, toning, upper body strength, endurance, tummy tightening, strength and all-around healthier lifestyle, that will keep you in shape and always on top of your game.
 
-##### all
 
 ## Ages, Shapes & Levels
 
