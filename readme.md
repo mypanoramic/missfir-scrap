@@ -127,18 +127,26 @@ Closed
 
 ### [MissFit MEYERSDAL](https://missfitboxing.com/za/missfit-meyersdal/)
 
+
 **071 838 4871**
+
 meyersdal@missfitboxing.com
+
 **Address: Meyersdal Square, Michelle Ave, Randhart, Alberton, 1449**
  
-### [MissFit \ \ Bedfordview](https://missfitboxing.com/za/missfit-bedfordview/)
+### [MissFit Bedfordview](https://missfitboxing.com/za/missfit-bedfordview/)
+
 **079 017 6686**
+
 bedfordview@missfitboxing.com
+
 **Address: Skeen Office Park, 16 Skeen Boulevard Bedfordview, 2008** 
 
-### [MissFit \ \ Northcliff](https://missfitboxing.com/za/missfit-northcliff/)
+### [MissFit Northcliff](https://missfitboxing.com/za/missfit-northcliff/)
 **071 522 4282**
+
 northcliff@missfitboxing.com
+
 **Address: Cresta Crossing, cnr Beyers Naudé Dr & Pendoring, Randburg, 2194**
 
 
@@ -159,9 +167,8 @@ greenstone@missfitboxing.com
 **Stonehill Crossing,**
 **Address: Cnr Stoneridge Dr & Greenstone Pl,  Greenstone Hill, 1609**
 
-![](https://maps.googleapis.com/maps/api/js/StaticMapService.GetMapImage?1m2&1i151415&2i150714&2e1&3u10&4m2&1u300&2u150&5m6&1e0&5sen-US&6sus&10b1&12b1&14i47083502&client=google-maps-embed&token=88650)
 
-### [MissFit \ \ Fourways](https://missfitboxing.com/za/missfit-fourways/)
+### [MissFit Fourways](https://missfitboxing.com/za/missfit-fourways/)
 
 **071 522 4282**
 
@@ -171,14 +178,12 @@ fourways@missfitboxing.com
 
 **Address: Cnr Forest & The Straight,  Pineslopes, 2055**
 
-### [MissFit\ \ ILLOVO](https://missfitboxing.com/za/missfit-illovo/)
+### [MissFit ILLOVO](https://missfitboxing.com/za/missfit-illovo/)
 
 **060 950 4794**
 illovo@missfitboxing.com
 
 **Address: Thrupps Centre, 204 Oxford Rd,  Illovo, Sandton, 2196**
-
-![](https://maps.googleapis.com/maps/api/js/StaticMapService.GetMapImage?1m2&1i151347&2i150720&2e1&3u10&4m2&1u300&2u150&5m6&1e0&5sen-US&6sus&10b1&12b1&14i47083502&client=google-maps-embed&token=13078)
 
 ### [MissFit\ \ Parkhurst](https://missfitboxing.com/za/missfit-parkhurst/)
 
@@ -188,9 +193,7 @@ parkhurst@missfitboxing.com
 
 **Address: No 12, 6th Ave, Parkhurst,2193**
 
-![](https://maps.googleapis.com/maps/api/js/StaticMapService.GetMapImage?1m2&1i151323&2i150731&2e1&3u10&4m2&1u300&2u150&5m6&1e0&5sen-US&6sus&10b1&12b1&14i47083502&client=google-maps-embed&token=28991)
-
-### [MissFit \ \ Benoni](https://missfitboxing.com/za/missfit-benoni/)
+### [MissFit Benoni](https://missfitboxing.com/za/missfit-benoni/)
 
 **083 280 3783**
 
@@ -198,27 +201,25 @@ benoni@missfitboxing.com
 
 **Address: Craft Cafe Centre,144 Pretoria Rd,  Rynfield, Benoni, 1501**
 
-![](https://maps.googleapis.com/maps/api/js/StaticMapService.GetMapImage?1m2&1i151557&2i150737&2e1&3u10&4m2&1u300&2u150&5m6&1e0&5sen-US&6sus&10b1&12b1&14i47083502&client=google-maps-embed&token=26418)
-
-### [MissFit \ \ Featherbrooke](https://missfitboxing.com/za/missfit-featherbrooke/)
+### [MissFit Featherbrooke](https://missfitboxing.com/za/missfit-featherbrooke/)
 
 **079 880 1859**featherbrooke@missfitboxing.com
 
 **Address: Featherbrooke village, Cnr Hendrik Potgieter Rd & Peter Rd, Ruimsig, Roodepoort**
 
-### [MissFit \ \ Kyalami](https://missfitboxing.com/za/missfit-kyalami/)
+### [MissFit Kyalami](https://missfitboxing.com/za/missfit-kyalami/)
 
 **072 716 6663**kyalami@missfitboxing.com
 
 **Address: Kyalami Downs Shopping Centre , Cnr Kyalami Boulevard & Main Road, Kyalami Park, Midrand**
 
-### [MissFit \ \ Northriding](https://missfitboxing.com/za/missfit-northriding/)
+### [MissFit Northriding](https://missfitboxing.com/za/missfit-northriding/)
 
 **076 648 2515**northriding@missfitboxing.com
 
 **Address: North View Shopping Center, Olievenhout Ave &, Malibongwe Dr, Randburg**
 
-### [MissFit \ \ Sunward Park](https://missfitboxing.com/za/missfit-sunward-park/)
+### [MissFit Sunward Park](https://missfitboxing.com/za/missfit-sunward-park/)
 
 **063 541 5024**sunwardpark@missfitboxing.com
 
@@ -242,13 +243,13 @@ faerieglen@missfitboxing.com
 
 **Address: Atterbury Boulevard,Atterbury Rd,  Faerie Glen, Pretoria, 0081**
 
-### [MissFit \ \ Brooklyn](https://missfitboxing.com/za/missfit-brooklyn/)
+### [MissFit Brooklyn](https://missfitboxing.com/za/missfit-brooklyn/)
 
 **072 418 0585**brooklyn@missfitboxing.com
 
 **Address: 260A Florence Ribeiro Ave, Brooklyn, Pretoria**
 
-### [MissFit \ \ Zwartkop](https://missfitboxing.com/za/missfit-zwartkop)
+### [MissFit Zwartkop](https://missfitboxing.com/za/missfit-zwartkop)
 
 **060 585 9391**
 
@@ -258,7 +259,7 @@ zwartkop@missfitboxing.com
 
 ## Cape Town
 
-### [MISSFIT \ \ TYGERVALLEY (CPT)](https://missfitboxing.com/za/missfit-tygervalley/)
+### [MISSFIT TYGERVALLEY (CPT)](https://missfitboxing.com/za/missfit-tygervalley/)
 
 **066 231 2186**
 
@@ -266,30 +267,30 @@ tygervalley@missfitboxing.com
 
 **Address: Highstreet Tygervalley, 06 High St, Rosen Park, Bellville, Cape Town, 7550**
 
-### [MissFit \ \ Stellenbosch (CPT)](https://missfitboxing.com/za/missfit-stellenbosch/)
+### [MissFit Stellenbosch (CPT)](https://missfitboxing.com/za/missfit-stellenbosch/)
 
 **084 052 7269**stellenbosch@missfitboxing.com
 
 **Address: Eikestad Mall, 64 Andringa St, Stellenbosch Cafe, 7600**
 
-### [MissFit \ \ Somerset West (CPT)](https://missfitboxing.com/za/missfit-somerset-west/)
+### [MissFit Somerset West (CPT)](https://missfitboxing.com/za/missfit-somerset-west/)
 
 **083 640 9493**somersetwest@missfitboxing.com
 **Address: The Meltz Centre, Urtel Crescent, Somerset West Triangle**
 
-### [MissFit \ \ Tabel View (CPT)](https://missfitboxing.com/za/missfit-somerset-west/)
+### [MissFit Tabel View (CPT)](https://missfitboxing.com/za/missfit-somerset-west/)
 
 **066 275 3497**tableview@missfitboxing.com
 **Address: Flamingo Square, 212 Blaauwberg Rd, Table View, 7439**
 
 ## Garden Route (WC)
 
-### [MissFit \ \ George](https://missfitboxing.com/za/missfit-george-east/)
+### [MissFit George](https://missfitboxing.com/za/missfit-george-east/)
 
 **082 733 7025**george@missfitboxing.com
 
 **Address: 41 Knysna Rd, Levallia, George**
 
-### [MissFit \ \ Mossel Bay](https://missfitboxing.com/za/missfit-mossel-bay/)
+### [MissFit Mossel Bay](https://missfitboxing.com/za/missfit-mossel-bay/)
 
 **071 216 2847** mosselbay@missfitboxing.com **Address: Langeberg Mall, Depot Rd, Voorbaai**
