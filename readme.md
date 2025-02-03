@@ -50,3 +50,29 @@ If you’re ready to get in the best shape of your life then schedule your free 
 ## Franchise Opportunities
 Do What You Love, Love What You Do
 [More info](https://missfitboxing.com/za/franchise-2024/)
+
+# Pricing
+
+## Basic
+#### Stronger than yesterday
+#### Starting from R850 p/m
+[Packages](https://missfitboxing.com/za/pricing/#price_basic)
+
+## Standard
+#### Grow and Glow
+#### Starting from R1100 p/m
+[Packages](https://missfitboxing.com/za/pricing/#price_standard)
+
+
+## Unlimited
+
+#### Defy your Limits
+#### Starting from R1400 p/m
+[Packages](https://missfitboxing.com/za/pricing/#price_unlimited)
+
+## Pay & Play
+#### Hit and Run, Just for fun
+#### Starting from R220 p/class
+[Packages](https://missfitboxing.com/za/pricing/#price_pay_n_play)
+
+
