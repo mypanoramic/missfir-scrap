@@ -10,10 +10,7 @@
 
 ## Who started MissFit Boxing
 
-Our founder of MissFit Studios has many years of high-intensity fitness experience and knows exactly what keeps you moving, grooving and wanting more. With high intensity and well thought-out fitness programming that will offer you, weight loss, toning, upper body strength, endurance, tummy tightening, strength and all-around healthier lifestyle, that will keep you in shape and always on top of your game.
-
-
-## All Ages, Shapes & Levels
+Our founder of MissFit Studios has many years of high-intensity fitness experience and knows exactly what keeps you moving, grooving and wanting more. With high intensity and well thought-out fitness programming that will offer you, weight loss, toning, upper body strength, endurance, tummy tightening, strength and all-around healthier lifestyle, that will keep you in shape and always on top of your game.## All Ages, Shapes & Levels
 
 MissFit is designed for the 21st-century woman, regardless of your age, shape and fitness level. We have set out our studios to give you the best training experience of its kind offering you nothing but the best looking to the most functional fitness facility, with an upbeat vibe that will have you and your Girls coming back and swinging for more.
 
@@ -24,14 +21,11 @@ MissFit programming is a 60-minute workout that combines boxing exercise with ca
 ## We will know your name
 Every MissFit class is run by one of our Certified MissFit Trainers to guide you on proper form and to keep your motivation level at its peak. Whether your level of fitness is a beginner or advanced, MissFit trainers will push you to new limits to help you obtain your fitness goals.
 
-![](https://i0.wp.com/missfitboxing.com/za/wp-content/uploads/2021/07/MissFit-Community.jpg?w=1450&ssl=1)
-
-
-## Let's Get your journey started
 
 If you’re ready to get in the best shape of your life then schedule your free session now! We look forward to seeing you punching, sweating and having fun while you’re at it!
 
 [BOOK A FREE TRIAL](https://missfitboxing.com/za/free-trial/)
+
 
 ## Main Pages
 
@@ -51,6 +45,7 @@ If you’re ready to get in the best shape of your life then schedule your free 
 Do What You Love, Love What You Do
 [More info](https://missfitboxing.com/za/franchise-2024/)
 
+
 # Pricing
 
 ## Basic
@@ -61,10 +56,7 @@ Do What You Love, Love What You Do
 ## Standard
 #### Grow and Glow
 #### Starting from R1100 p/m
-[Packages](https://missfitboxing.com/za/pricing/#price_standard)
-
-
-## Unlimited
+[Packages](https://missfitboxing.com/za/pricing/#price_standard)## Unlimited
 
 #### Defy your Limits
 #### Starting from R1400 p/m
@@ -74,6 +66,7 @@ Do What You Love, Love What You Do
 #### Hit and Run, Just for fun
 #### Starting from R220 p/class
 [Packages](https://missfitboxing.com/za/pricing/#price_pay_n_play)
+
 
 # In Facility Class schedule
 
@@ -121,14 +114,12 @@ Do What You Love, Love What You Do
 
 Closed
 
+
 # Contact Us / Locations
 
 ## Johannesburg
 
-### [MissFit MEYERSDAL](https://missfitboxing.com/za/missfit-meyersdal/)
-
-
-**071 838 4871**
+### [MissFit MEYERSDAL](https://missfitboxing.com/za/missfit-meyersdal/)**071 838 4871**
 
 meyersdal@missfitboxing.com
 
@@ -148,10 +139,7 @@ bedfordview@missfitboxing.com
 
 northcliff@missfitboxing.com
 
-**Address: Cresta Crossing, cnr Beyers Naudé Dr & Pendoring, Randburg, 2194**
-
-
-### [MissFit Glen Marais](https://missfitboxing.com/za/missfit-glen-marais/)
+**Address: Cresta Crossing, cnr Beyers Naudé Dr & Pendoring, Randburg, 2194**### [MissFit Glen Marais](https://missfitboxing.com/za/missfit-glen-marais/)
 
 **083 280 3783**
 
@@ -167,10 +155,7 @@ greenstone@missfitboxing.com
 
 **Stonehill Crossing,**
 
-**Address: Cnr Stoneridge Dr & Greenstone Pl,  Greenstone Hill, 1609**
-
-
-### [MissFit Fourways](https://missfitboxing.com/za/missfit-fourways/)
+**Address: Cnr Stoneridge Dr & Greenstone Pl,  Greenstone Hill, 1609**### [MissFit Fourways](https://missfitboxing.com/za/missfit-fourways/)
 
 **071 522 4282**
 
@@ -320,15 +305,14 @@ george@missfitboxing.com
 
 mosselbay@missfitboxing.com 
 
-**Address: Langeberg Mall, Depot Rd, Voorbaai**
+**Address: Langeberg Mall, Depot Rd, Voorbaai**# 
 
 
-# Become a MissFit Coach
-To Become a MissFit Coach, Check https://missfitboxing.com/za/become-a-coach/
+## Become a MissFit Coach
+To Become a MissFit Coach, Check https://missfitboxing.com/za/become-a-coach/# Franchise
 
 
-# Franchise
-
+# Franchise 
 Love Fitness? Make it your Business! 
 
 Unique Exclusive Women's Fitness
@@ -338,7 +322,8 @@ Welcome to SA’s leading revolutionary Exclusive Women’s franchise brand Sinc
 The Fastest Growing Women's Fitness Franchise
 23x Studios Opened Since 2018
 
-## What we offer 🫱
+
+## Franchise: What we offer 🫱
 #### Low startup cost
 Do what you love, love what you do, without breaking the bank
 
@@ -357,8 +342,9 @@ Get expert guidance every step of the way
 #### Break even in 3-6 mth
 Achieve profitability quickly with our support
 
+
 ### 100% Turnkey Solution
-#### Included in Setup Cost
+#### Franchise; Included in Setup Cost
 ✅ Fully Equipped Studio
 ✅ Custom Shop Fitting  
 ✅ Custom MissFit Equipment 
@@ -371,19 +357,20 @@ Achieve profitability quickly with our support
 ✅ 50x Big Bang Hampers
 ✅ MissFit Branded Apparel
 
-## how Much you ask?
+## Franchise How Much you ask?
 Once-off R1'249'999 Setup Cost (Incl VAT)
-#### Monthly Fees
+#### Franchise Monthly Fees
 Franchise Fee - R6960 p/m
 Marketing Fee - R1900 p/m
 Software & Access fee - R2480 p/m
-#### What Makes Us Different
+#### Franchise What Makes Us Different
 First 3x Month Breather on
 Franchise & Marketing Fee
 365 Days a Year Franchise Support
 No Turnover Based Royalty Fees
 
-### Location Requirements
+
+### Franchise Location Requirements
 140-180sqm floor space
 Easily Accessible
 Safe enviroment
@@ -417,30 +404,40 @@ Your awesome brand new MissFit Studio is ready to go! It time to shout it out fo
 #### Step #7 UP. UP & AWAY 🚀
 You have the tools, you have the location, you have the support, it’s time to shine and start your MissFit Boxing future!
 
-### FAQ
+
+
+### Franchise FAQ
 #### Is there assistance provided or recommendations made regarding choosing a location for a studio?
 Absolutely. Our Franchise Broker collaborates closely with you and rental agents to identify the perfect studio space and location for your MissFit Studio.
+
 
 #### Did you need any background in business before you became a franchisee for the first time?
 No prior business experience is required. We welcome individuals from various backgrounds who are passionate about our brand and its mission.
 
+
 #### Will I receive training before I open for business and ongoing training?
 Yes, comprehensive training is provided before your grand opening, covering both business/administration and coaching aspects. Additionally, we conduct annual workshops to ensure continuous growth and development.
+
 
 #### What areas of support will you provide, and how much support will be offered?
 We offer extensive support across all facets of your franchise journey, including business operations, coaching, and marketing. Our aim is to provide full support to help you succeed.
 
+
 #### How long have you been franchising?
 We have been franchising since May 2018, building a solid foundation and a proven system for franchise success.
+
 
 #### Do you provide assistance in finding a suitable coach?
 Yes, we assist in the process of finding and selecting suitable coaches to join your MissFit Studio team.
 
+
 #### How involved do the Franchise owners need to be in the business?
 We encourage each franchisee to be actively involved in the day-to-day operations of the business. We believe in leading by example and embodying the energetic spirit of the MissFit brand.
 
+
 #### From start of application to opening the studio, how long does the process take?
 The timeline varies, but typically, the process takes around 4 months from the initial application to the grand opening of your studio.
+
 
 #### Do I need to be in the fitness industry to qualify to be a Franchisee?
 No, prior experience in the fitness industry is not mandatory. However, a deep love for the brand and its values is essential.
