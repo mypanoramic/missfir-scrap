@@ -143,6 +143,7 @@ bedfordview@missfitboxing.com
 **Address: Skeen Office Park, 16 Skeen Boulevard Bedfordview, 2008** 
 
 ### [MissFit Northcliff](https://missfitboxing.com/za/missfit-northcliff/)
+
 **071 522 4282**
 
 northcliff@missfitboxing.com
@@ -165,6 +166,7 @@ glenmarais@missfitboxing.com
 greenstone@missfitboxing.com
 
 **Stonehill Crossing,**
+
 **Address: Cnr Stoneridge Dr & Greenstone Pl,  Greenstone Hill, 1609**
 
 
@@ -181,6 +183,7 @@ fourways@missfitboxing.com
 ### [MissFit ILLOVO](https://missfitboxing.com/za/missfit-illovo/)
 
 **060 950 4794**
+
 illovo@missfitboxing.com
 
 **Address: Thrupps Centre, 204 Oxford Rd,  Illovo, Sandton, 2196**
@@ -276,11 +279,13 @@ tygervalley@missfitboxing.com
 ### [MissFit Somerset West (CPT)](https://missfitboxing.com/za/missfit-somerset-west/)
 
 **083 640 9493**somersetwest@missfitboxing.com
+
 **Address: The Meltz Centre, Urtel Crescent, Somerset West Triangle**
 
 ### [MissFit Tabel View (CPT)](https://missfitboxing.com/za/missfit-somerset-west/)
 
 **066 275 3497**tableview@missfitboxing.com
+
 **Address: Flamingo Square, 212 Blaauwberg Rd, Table View, 7439**
 
 ## Garden Route (WC)
