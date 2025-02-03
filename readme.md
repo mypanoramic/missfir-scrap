@@ -325,3 +325,125 @@ mosselbay@missfitboxing.com
 
 # Become a MissFit Coach
 To Become a MissFit Coach, Check https://missfitboxing.com/za/become-a-coach/
+
+
+# Franchise
+
+Love Fitness? Make it your Business! 
+
+Unique Exclusive Women's Fitness
+
+Empowering others to become Empowered!
+Welcome to SA’s leading revolutionary Exclusive Women’s franchise brand Since 2018
+The Fastest Growing Women's Fitness Franchise
+23x Studios Opened Since 2018
+
+## What we offer 🫱
+#### Low startup cost
+Do what you love, love what you do, without breaking the bank
+
+#### high returns on investment
+Reap substantial rewards with our proven business model
+
+#### proven Formula
+Benefit from our time-tested success strategies
+
+#### exclusive territory
+Secure your area as the premier fitness destination.
+
+#### Training & Support
+Get expert guidance every step of the way
+
+#### Break even in 3-6 mth
+Achieve profitability quickly with our support
+
+### 100% Turnkey Solution
+#### Included in Setup Cost
+✅ Fully Equipped Studio
+✅ Custom Shop Fitting  
+✅ Custom MissFit Equipment 
+✅ Outdoor & Indoor Branding
+✅ Training & Support
+✅ Exclusive Territory
+✅ Setup in 4-weeks
+✅ Grand Opening
+✅ Dedicated Head Office Support
+✅ 50x Big Bang Hampers
+✅ MissFit Branded Apparel
+
+## how Much you ask?
+Once-off R1'249'999 Setup Cost (Incl VAT)
+#### Monthly Fees
+Franchise Fee - R6960 p/m
+Marketing Fee - R1900 p/m
+Software & Access fee - R2480 p/m
+#### What Makes Us Different
+First 3x Month Breather on
+Franchise & Marketing Fee
+365 Days a Year Franchise Support
+No Turnover Based Royalty Fees
+
+### Location Requirements
+140-180sqm floor space
+Easily Accessible
+Safe enviroment
+Ample Parking near by
+Affluent area
+Min Celing height of 2.5m
+Branding Space Available
+Not near another MissFit Studio
+Rental of R25K-R30K p/m, excluding amenities and VAT
+
+## Steps to setup Franchise
+Easy, Peasy , Lemon Squeezy 🍋 Let's Get cracking
+#### Step #1 FIND THE PERFECT PREMISES 📍
+Location, location, location… find and secure your perfect MisFit Boxing Studio permisies.
+
+#### Step #2 Enquiry 📝
+Reach out to us, and we’ll guide you through the process of becoming a proud MisFit Boxing Franchisee. 
+
+#### Step #3 INTERVIEW & SCREENING 🖥️
+You have submitted your application form and its passed the first screening process, now it’s time to meet with the Franchise broker and Founder of MissFit. 
+
+#### Step #4 DEPOSIT 💰
+You have met with the right people and you are ready to roll… the next is to put down a small holding deposit of R15’000 that will secure your facility’s exclusive territory, before someone else can claim your area.
+
+#### Step #5 STUDIO SETUP 💥🔨
+The studio location is tied down, the lease agreement signed, the keys have been received. Now it’s time for us to work our magic and deliver to you a beautiful fully-fitted MisFit Boxing Studio in 4 weeks!
+
+#### Step #6 GRAND OPENING 🎈🥳
+Your awesome brand new MissFit Studio is ready to go! It time to shout it out form the mountain tops and invite everyone to your Grand Opening
+
+#### Step #7 UP. UP & AWAY 🚀
+You have the tools, you have the location, you have the support, it’s time to shine and start your MissFit Boxing future!
+
+### FAQ
+#### Is there assistance provided or recommendations made regarding choosing a location for a studio?
+Absolutely. Our Franchise Broker collaborates closely with you and rental agents to identify the perfect studio space and location for your MissFit Studio.
+
+#### Did you need any background in business before you became a franchisee for the first time?
+No prior business experience is required. We welcome individuals from various backgrounds who are passionate about our brand and its mission.
+
+#### Will I receive training before I open for business and ongoing training?
+Yes, comprehensive training is provided before your grand opening, covering both business/administration and coaching aspects. Additionally, we conduct annual workshops to ensure continuous growth and development.
+
+#### What areas of support will you provide, and how much support will be offered?
+We offer extensive support across all facets of your franchise journey, including business operations, coaching, and marketing. Our aim is to provide full support to help you succeed.
+
+#### How long have you been franchising?
+We have been franchising since May 2018, building a solid foundation and a proven system for franchise success.
+
+#### Do you provide assistance in finding a suitable coach?
+Yes, we assist in the process of finding and selecting suitable coaches to join your MissFit Studio team.
+
+#### How involved do the Franchise owners need to be in the business?
+We encourage each franchisee to be actively involved in the day-to-day operations of the business. We believe in leading by example and embodying the energetic spirit of the MissFit brand.
+
+#### From start of application to opening the studio, how long does the process take?
+The timeline varies, but typically, the process takes around 4 months from the initial application to the grand opening of your studio.
+
+#### Do I need to be in the fitness industry to qualify to be a Franchisee?
+No, prior experience in the fitness industry is not mandatory. However, a deep love for the brand and its values is essential.
+
+#### How many MissFit Studios are currently operating?
+As of April 2024, there are 22 thriving MissFit Studios operating across South Africa.
