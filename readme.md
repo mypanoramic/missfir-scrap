@@ -75,4 +75,49 @@ Do What You Love, Love What You Do
 #### Starting from R220 p/class
 [Packages](https://missfitboxing.com/za/pricing/#price_pay_n_play)
 
+# In Facility Class schedule
+
+## MON – THU
+
+### Morning
+
+06:30 – 07:30
+
+07:30 – 08:30
+
+08:30 – 09:30
+
+### Afternoon
+
+16:30 – 17:30
+
+17:30 – 18:30
+
+18:30 – 19:30
+
+## FRIDAY
+
+### Morning
+
+06:30 – 07:30
+
+07:30 – 08:30
+
+08:30 – 09:30
+
+### Afternoon
+
+16:30 – 17:30
+
+## SATURDAY
+
+### Morning
+
+07:30 – 08:30
+
+08:30 – 09:30
+
+### SUNDAY / PUBLIC HOLIDAY
+
+Closed
 
