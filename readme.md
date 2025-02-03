@@ -117,7 +117,7 @@ Do What You Love, Love What You Do
 
 08:30 – 09:30
 
-### SUNDAY / PUBLIC HOLIDAY
+## SUNDAY / PUBLIC HOLIDAY
 
 Closed
 
