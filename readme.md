@@ -321,3 +321,7 @@ george@missfitboxing.com
 mosselbay@missfitboxing.com 
 
 **Address: Langeberg Mall, Depot Rd, Voorbaai**
+
+
+# Become a MissFit Coach
+To Become a MissFit Coach, Check https://missfitboxing.com/za/become-a-coach/
