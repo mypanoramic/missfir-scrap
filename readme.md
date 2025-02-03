@@ -206,25 +206,33 @@ benoni@missfitboxing.com
 
 ### [MissFit Featherbrooke](https://missfitboxing.com/za/missfit-featherbrooke/)
 
-**079 880 1859**featherbrooke@missfitboxing.com
+**079 880 1859**
+
+featherbrooke@missfitboxing.com
 
 **Address: Featherbrooke village, Cnr Hendrik Potgieter Rd & Peter Rd, Ruimsig, Roodepoort**
 
 ### [MissFit Kyalami](https://missfitboxing.com/za/missfit-kyalami/)
 
-**072 716 6663**kyalami@missfitboxing.com
+**072 716 6663**
+
+kyalami@missfitboxing.com
 
 **Address: Kyalami Downs Shopping Centre , Cnr Kyalami Boulevard & Main Road, Kyalami Park, Midrand**
 
 ### [MissFit Northriding](https://missfitboxing.com/za/missfit-northriding/)
 
-**076 648 2515**northriding@missfitboxing.com
+**076 648 2515**
+
+northriding@missfitboxing.com
 
 **Address: North View Shopping Center, Olievenhout Ave &, Malibongwe Dr, Randburg**
 
 ### [MissFit Sunward Park](https://missfitboxing.com/za/missfit-sunward-park/)
 
-**063 541 5024**sunwardpark@missfitboxing.com
+**063 541 5024**
+
+sunwardpark@missfitboxing.com
 
 **Address: Kingfisher Corner, Kingfisher Avenue & Nicholson Road, Boksburg**
 
@@ -248,7 +256,9 @@ faerieglen@missfitboxing.com
 
 ### [MissFit Brooklyn](https://missfitboxing.com/za/missfit-brooklyn/)
 
-**072 418 0585**brooklyn@missfitboxing.com
+**072 418 0585**
+
+brooklyn@missfitboxing.com
 
 **Address: 260A Florence Ribeiro Ave, Brooklyn, Pretoria**
 
@@ -272,19 +282,25 @@ tygervalley@missfitboxing.com
 
 ### [MissFit Stellenbosch (CPT)](https://missfitboxing.com/za/missfit-stellenbosch/)
 
-**084 052 7269**stellenbosch@missfitboxing.com
+**084 052 7269**
+
+stellenbosch@missfitboxing.com
 
 **Address: Eikestad Mall, 64 Andringa St, Stellenbosch Cafe, 7600**
 
 ### [MissFit Somerset West (CPT)](https://missfitboxing.com/za/missfit-somerset-west/)
 
-**083 640 9493**somersetwest@missfitboxing.com
+**083 640 9493**
+
+somersetwest@missfitboxing.com
 
 **Address: The Meltz Centre, Urtel Crescent, Somerset West Triangle**
 
 ### [MissFit Tabel View (CPT)](https://missfitboxing.com/za/missfit-somerset-west/)
 
-**066 275 3497**tableview@missfitboxing.com
+**066 275 3497**
+
+tableview@missfitboxing.com
 
 **Address: Flamingo Square, 212 Blaauwberg Rd, Table View, 7439**
 
@@ -292,10 +308,16 @@ tygervalley@missfitboxing.com
 
 ### [MissFit George](https://missfitboxing.com/za/missfit-george-east/)
 
-**082 733 7025**george@missfitboxing.com
+**082 733 7025**
+
+george@missfitboxing.com
 
 **Address: 41 Knysna Rd, Levallia, George**
 
 ### [MissFit Mossel Bay](https://missfitboxing.com/za/missfit-mossel-bay/)
 
-**071 216 2847** mosselbay@missfitboxing.com **Address: Langeberg Mall, Depot Rd, Voorbaai**
+**071 216 2847** 
+
+mosselbay@missfitboxing.com 
+
+**Address: Langeberg Mall, Depot Rd, Voorbaai**
