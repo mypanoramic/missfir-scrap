@@ -150,7 +150,7 @@ northcliff@missfitboxing.com
 **Address: Cresta Crossing, cnr Beyers Naudé Dr & Pendoring, Randburg, 2194**
 
 
-### [MissFit\ \ Glen Marais](https://missfitboxing.com/za/missfit-glen-marais/)
+### [MissFit Glen Marais](https://missfitboxing.com/za/missfit-glen-marais/)
 
 **083 280 3783**
 
@@ -158,7 +158,7 @@ glenmarais@missfitboxing.com
 
 **Address: Glen Acres Shopping Center, Cnr Dann Rd & Monument Rd, Glen Marais, Kempton Park, 1619**
 
-### [MissFit\ \ Greenstone](https://missfitboxing.com/za/missfit-greenstone/)
+### [MissFit Greenstone](https://missfitboxing.com/za/missfit-greenstone/)
 
 **083 793 2247**
 
@@ -185,7 +185,7 @@ illovo@missfitboxing.com
 
 **Address: Thrupps Centre, 204 Oxford Rd,  Illovo, Sandton, 2196**
 
-### [MissFit\ \ Parkhurst](https://missfitboxing.com/za/missfit-parkhurst/)
+### [MissFit Parkhurst](https://missfitboxing.com/za/missfit-parkhurst/)
 
 **060 950 4794**
 
@@ -227,7 +227,7 @@ benoni@missfitboxing.com
 
 ## Pretoria
 
-## [MissFit\ \ Van Ryneveld](https://missfitboxing.com/za/missfit-van-ryneveld/)
+## [MissFit Van Ryneveld](https://missfitboxing.com/za/missfit-van-ryneveld/)
 
 **066 270 2393**
 
@@ -235,7 +235,7 @@ vanryneveld@missfitboxing.com
 
 **Address: Ryneveld Corner,31 Fouche Rd,  Pierre van Ryneveld Park, Centurion, 0157**
 
-### [MissFit\ \ Faerie Glen](https://missfitboxing.com/za/missfit-faerie-glen/)
+### [MissFit Faerie Glen](https://missfitboxing.com/za/missfit-faerie-glen/)
 
 **071 678 3914**
 
