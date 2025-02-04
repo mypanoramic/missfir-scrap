@@ -115,11 +115,13 @@ Do What You Love, Love What You Do
 Closed
 
 
-# Contact Us / Locations
+# Contact Us / Branch Locations
 
 ## Johannesburg
 
-### [MissFit MEYERSDAL](https://missfitboxing.com/za/missfit-meyersdal/)**071 838 4871**
+### [MissFit MEYERSDAL](https://missfitboxing.com/za/missfit-meyersdal/)
+
+**071 838 4871**
 
 meyersdal@missfitboxing.com
 
@@ -129,7 +131,7 @@ meyersdal@missfitboxing.com
 
 **079 017 6686**
 
-bedfordview@missfitboxing.com
+Email: bedfordview@missfitboxing.com
 
 **Address: Skeen Office Park, 16 Skeen Boulevard Bedfordview, 2008** 
 
